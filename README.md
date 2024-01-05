@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yagdesignz01
-- 👀 I’m interested in graphics design
+- 👀 I’m interested in UI/UX & graphics design
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on company job
 - 📫 How to reach me professional designer 
